@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Srdking502
 - 👀 I’m interested in ... Rooting/jailbreaking/coding
 - 🌱 I’m currently learning ...as much as possible
-- 💞️ I’m looking to collaborate on ...
+- 👾 I’m looking to collaborate on ...
 - 📫 How to reach me ...srdking502@gmail.com
 
 <!---
